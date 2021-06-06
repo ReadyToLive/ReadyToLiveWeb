@@ -1,1 +1,1 @@
-Created by https://designmodo.com/slides/
+Created by https://slashmod.tk/
